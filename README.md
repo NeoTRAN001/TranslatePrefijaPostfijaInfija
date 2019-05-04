@@ -1,1 +1,3 @@
-![](Captura1.PNG)
+![](bitmagi.png)
+![](Captura1.PNG
+
